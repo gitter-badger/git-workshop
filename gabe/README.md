@@ -1,0 +1,1 @@
+![unlikely animal friendships](http://cdn.hellogiggles.com/wp-content/uploads/2012/09/22/unlikely-animal-friends2.jpg?v=391846.27126194444)
